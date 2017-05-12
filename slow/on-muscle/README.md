@@ -43,3 +43,6 @@ muscle
 [外行看腹，新手看胸，高手看背，大师看腿](https://github.com/7900ms/notinternet_deserted/tree/master/supplementary)
 
 [健身房的传奇：在健身房，用120公斤做挑战的很多，但是用120公斤以上的重量做组训练的，一只手数得过来！！！](https://www.zhihu.com/question/21084197)
+
+[卧推力量练习:1个月两边5kg,1个月只能两边各10kg,5个月之后可以等体重做组,两年多200磅了。这保持稳定训练的毅力能淘汰95%同期了](https://www.zhihu.com/question/21084197/answer/35592569)
+
