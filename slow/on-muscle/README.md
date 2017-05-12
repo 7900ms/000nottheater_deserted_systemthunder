@@ -1,7 +1,7 @@
 
 [muscle](https://item.jd.com/1004115039.html#朗威肌肉训练专家) x [time](https://item.jd.com/2266451.html#哑铃健身计划参考)
 
-[全套妥妥的，肌肉男马上就要诞生了 (老丁那样的女生不一定喜欢，但ZX一定会喜欢)](https://item.jd.com/1004115039.html)
+[全套妥妥的，肌肉男马上就要诞生了 (老丁那样的女生不一定喜欢，但ZX一定会喜欢)](https://item.jd.com/1004115039.html)[。](https://web.archive.org/web/20090925020207/http://lydon.ycool.com:80/post.831429.html)
 
 [新手RM13+](http://www.jianshen8.com/news/zhishi/12245.html)
 
