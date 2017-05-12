@@ -4,4 +4,4 @@
 本文转载自lydon.yculblog.com
 作者为资深乐评人
 
-http://www.soomal.com/doc/10100000464.htm
+http://www.soomal.com/bbs/10100000474.htm
