@@ -19,6 +19,9 @@ muscle
 
 胸肌 - 卧推, 俯卧撑
 
+  [ref 哑铃卧推](https://www.youtube.com/watch?v=J0fCqphI9_8) [ref 大力卧推](https://www.youtube.com/watch?v=Zu5obgmLloc)
+  [ref 入门每周3天，每个动作3组，每组12下 卧推](https://www.youtube.com/watch?v=lgUtnbLSb6k)
+
 #### 腹肌
 
 腹肌 - 
