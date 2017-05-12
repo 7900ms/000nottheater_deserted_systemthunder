@@ -1,5 +1,5 @@
 
-[muscle](https://item.jd.com/1004115039.html#朗威肌肉训练专家)
+[muscle](https://item.jd.com/1004115039.html#朗威肌肉训练专家) x [time](https://item.jd.com/2266451.html#哑铃健身计划参考)
 
 #### 大腿
 
