@@ -5,6 +5,8 @@
 
 [新手RM13+](http://www.jianshen8.com/news/zhishi/12245.html)
 
+[马太效应-会越练越好](http://www.wangxiaofeng.me/?p=3900)
+
 #### 大腿
 
 大腿肌 - 深蹲
