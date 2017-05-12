@@ -15,4 +15,12 @@ https://www.facebook.com/TWMusicWriting/posts/423846067669940
 - 不 share 价值观，那也是傻 <观念太落后了会限制具体行动,等于啥都不懂>
 ```
 
+排序 看有没有兴致
+```
+share 价值观，但具体行动不依赖
+share 价值观，具体行动依赖
+不 share 价值观，具体行动不依赖
+不 share 价值观，具体行动依赖
+```
+
 -
