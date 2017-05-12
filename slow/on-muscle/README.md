@@ -38,4 +38,8 @@ muscle
 
   [ref 引体向上](https://www.youtube.com/watch?v=lgUtnbLSb6k)
 
+= = =
+
 [外行看腹，新手看胸，高手看背，大师看腿](https://github.com/7900ms/notinternet_deserted/tree/master/supplementary)
+
+[健身房的传奇：在健身房，用120公斤做挑战的很多，但是用120公斤以上的重量做组训练的，一只手数得过来！！！](https://www.zhihu.com/question/21084197)
