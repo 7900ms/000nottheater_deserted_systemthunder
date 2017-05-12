@@ -1,6 +1,10 @@
 
 [muscle](https://item.jd.com/1004115039.html#朗威肌肉训练专家) x [time](https://item.jd.com/2266451.html#哑铃健身计划参考)
 
+[全套妥妥的，肌肉男马上就要诞生了 (老丁那样的女生不一定喜欢，但ZX一定会喜欢)](https://item.jd.com/1004115039.html)
+
+[新手RM13+](http://www.jianshen8.com/news/zhishi/12245.html)
+
 #### 大腿
 
 大腿肌 - 深蹲
@@ -46,4 +50,4 @@
 
 [卧推力量练习:1个月两边5kg,1个月只能两边各10kg,5个月之后可以等体重做组,两年多200磅了。这保持稳定训练的毅力能淘汰95%同期了](https://www.zhihu.com/question/21084197/answer/35592569)
 
-[全套妥妥的，肌肉男马上就要诞生了 (老丁那样的女生不一定喜欢，但ZX一定会喜欢)](https://item.jd.com/1004115039.html)
+
