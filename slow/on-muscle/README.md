@@ -1,5 +1,5 @@
 
-[muscle](https://item.jd.com/1004115039.html)
+[muscle](https://item.jd.com/1004115039.html#朗威肌肉训练专家)
 
 #### 大腿
 
