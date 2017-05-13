@@ -26,3 +26,5 @@ http://wangxiaofeng.blog.caixin.com/archives/145680
 文章稿酬标准: 千字/100元。就看编辑能不能要你这个稿子：要了就是这么多钱
 
 -
+
+[chain-没编辑的杂志会导致揽活儿坑人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)
