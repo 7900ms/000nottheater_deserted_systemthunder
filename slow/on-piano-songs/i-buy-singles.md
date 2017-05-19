@@ -9,6 +9,7 @@ I buy:
 - Richard Marx - Right Here Waiting
 
 - Amy Diamond - Heartbeats
+- M2M - Pretty Boy
 
 差点意思
 ```
@@ -20,6 +21,6 @@ Air Supply - Making Love Out Of Nothing At All
 Alicia Keys - If I Ain't Got You
 Glenn Frey - The One You Love
 
-M2M - Pretty Boy
+
 
 ```
