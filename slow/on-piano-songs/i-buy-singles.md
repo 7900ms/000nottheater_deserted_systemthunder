@@ -22,9 +22,7 @@ I buy:
 
 - Brian McKnight - Back at One
 - Laura Story - Grace
-
-
-- Iron & Wine - Flightless Bird, American Mouth
+- Iron & Wine - Flightless Bird, American Mouth (无法抵赖)
 
 
 差点意思
