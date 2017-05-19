@@ -4,3 +4,4 @@ I buy:
 - James Blunt - Goodbye My Lover
 - Adele - Someone Like You
 
+- Carla Bruni - You Belong to Me
