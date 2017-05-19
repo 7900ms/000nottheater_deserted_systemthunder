@@ -8,5 +8,7 @@ I buy:
 - James Blunt - Goodbye My Lover
 - Adele - Someone Like You
 
+[i buy](https://github.com/7900ms/000nottheater_deserted_systemthunder/blob/master/slow/on-piano-songs/i-buy-singles.md)
+
 
 -
