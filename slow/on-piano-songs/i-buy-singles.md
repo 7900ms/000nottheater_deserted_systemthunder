@@ -12,7 +12,7 @@ I buy:
 - M2M - Pretty Boy
 - James Blunt - These Are The Words
 
-
+- Green Day - Wake Me Up When September Ends
 
 
 差点意思
@@ -30,5 +30,6 @@ Green Day - 21 Guns
 Keane - Somewhere Only We Know
 
 Augustana - Boston
+Nickelback - If Everyone Cared
 
 ```
