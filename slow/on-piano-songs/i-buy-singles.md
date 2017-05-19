@@ -12,7 +12,19 @@ I buy:
 - M2M - Pretty Boy
 - James Blunt - These Are The Words
 
-- Green Day - Wake Me Up When September Ends
+- Michael Bublé - [Home](http://www.xiami.com/song/2083102)
+- Keith Urban - Tonight I Wanna Cry
+- SONSOFDAY - Oceans Deep
+
+- Enrique Iglesias - Hero
+- Babyface - With Him
+- Jason Walker - Down
+
+- Brian McKnight - Back at One
+- Laura Story - Grace
+
+
+- Iron & Wine - Flightless Bird, American Mouth
 
 
 差点意思
@@ -31,5 +43,10 @@ Keane - Somewhere Only We Know
 
 Augustana - Boston
 Nickelback - If Everyone Cared
+Green Day - Wake Me Up When September Ends
+
+Train - Hey Soul Sister
+
+
 
 ```
