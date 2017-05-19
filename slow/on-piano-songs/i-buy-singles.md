@@ -6,6 +6,7 @@ I buy:
 
 - Carla Bruni - You Belong to Me
 - Air Supply - All Out Of Love
+- Richard Marx - Right Here Waiting
 
 差点意思
 ```
@@ -15,4 +16,7 @@ Zee Avi - Bitter Heart
 
 Air Supply - Making Love Out Of Nothing At All
 Alicia Keys - If I Ain't Got You
+Glenn Frey - The One You Love
+
+
 ```
