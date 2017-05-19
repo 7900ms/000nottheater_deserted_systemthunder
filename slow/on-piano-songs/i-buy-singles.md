@@ -24,6 +24,9 @@ I buy:
 - Laura Story - Grace
 - Iron & Wine - Flightless Bird, American Mouth (无法抵赖)
 
+- Joshua Radin - I'd Rather Be With You (真的无法抵赖)
+- Sarah McLachlan - Angel
+
 
 差点意思
 ```
@@ -44,7 +47,7 @@ Nickelback - If Everyone Cared
 Green Day - Wake Me Up When September Ends
 
 Train - Hey Soul Sister
-
+Maroon 5 - Sugar
 
 
 ```
