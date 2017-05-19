@@ -7,3 +7,4 @@
 
 [Piano_blues](https://en.wikipedia.org/wiki/Piano_blues)
 
+[钢琴布鲁斯](http://www.xiami.com/genre/detail/sid/130)
