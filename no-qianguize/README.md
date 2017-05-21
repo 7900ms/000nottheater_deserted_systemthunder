@@ -22,5 +22,5 @@
 <br><br><br>
 <sub>
 静下心来，学习意大利人那样看歌剧。(这本身就是[由头](https://ruby-china.org/notes/4055))
-由头-真实惠 - 限制条件(先)做什么
+由头-真实惠 - 限制条件([先](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-night-call.md))做什么
 </sub>
