@@ -26,6 +26,7 @@ I buy:
 
 - Joshua Radin - I'd Rather Be With You (真的无法抵赖)
 - Sarah McLachlan - Angel
+- Norah Jones - Come Away With Me
 
 
 差点意思
