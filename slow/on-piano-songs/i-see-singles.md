@@ -3,7 +3,6 @@ i see (i knew dat feeling):
 
 3 Doors Down - Here Without You
 Lady Antebellum - Just A Kiss
-Avril Lavigne - Complicated
 
 
 差点儿意思:
@@ -14,6 +13,10 @@ Lady Antebellum - Need You Now
 
 Maroon 5 - She Will Be Loved
 Maroon 5 - Won't Go Home Without You
+
+Avril Lavigne - Complicated
+Carly Rae Jepsen - Call Me Maybe
+Carly Rae Jepsen - I Really Like You
 
 ```
 
